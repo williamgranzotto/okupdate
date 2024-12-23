@@ -1,0 +1,2 @@
+- @giteshgoyal would award me with Project but I misanderstand requirements. He needed design in figma and I tought it was frontend
+- @debsabyasachi sent me message, I repplied but got no answer back
